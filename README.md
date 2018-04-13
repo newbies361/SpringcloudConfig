@@ -1,2 +1,2 @@
 # SpringcloudConfig
-еёятеёсО
+Г┴⌡Х╗─Г┴⌡Х╞╜
